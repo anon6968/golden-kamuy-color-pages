@@ -1,0 +1,1 @@
+# golden-kamuy-color-pages
